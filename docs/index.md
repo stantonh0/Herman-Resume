@@ -23,7 +23,7 @@ __Brigham Young University Idaho__, Rexburg, ID
 ### Tax Intern
 
 `January 2022 - April 2022`
-__Sheperd Schwartz & Harris (Now Acquired by Citrin Cooperman)__, Chicago, IL
+__Shepard Schwartz & Harris (Now Acquired by Citrin Cooperman)__, Chicago, IL
 
 - Prepared business and individual tax returns using CCH Axcess
 - Worked with seniors and managers to complete a variety of projects, including multiple returns for real estate entities
